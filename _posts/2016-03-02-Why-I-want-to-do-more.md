@@ -12,11 +12,11 @@ By experimenting and measuring, I am allowing myself to do more by only continui
 
 ---
 
-	>Time is a serious implication in human lives. Most tend not to dwell on it too much and that is probably a good thing, but the realization that we can only do so much in a day and there are only so many days in our lives is one everyone should have. It is not something that is sad or demotivating, rather it is inspirational that I have a defined term and peaceful knowing that at some point I’ll pass on and leave my burdens behind. 
+Time is a serious implication in human lives. Most tend not to dwell on it too much and that is probably a good thing, but the realization that we can only do so much in a day and there are only so many days in our lives is one everyone should have. It is not something that is sad or demotivating, rather it is inspirational that I have a defined term and peaceful knowing that at some point I’ll pass on and leave my burdens behind. 
 
-	>The time implication is the real root of what is going on here. Since time is our most valuable resource we should always be looking for a ways to get things done faster. To specify, we should focus on learning faster and improving faster, not spending less time with family, meditating, or doing the things we love. In fact, improving faster gives us more time  to do the things we love, which has the effect of making the days feel longer because you are full of good emotions and at peace. 
+The time implication is the real root of what is going on here. Since time is our most valuable resource we should always be looking for a ways to get things done faster. To specify, we should focus on learning faster and improving faster, not spending less time with family, meditating, or doing the things we love. In fact, improving faster gives us more time  to do the things we love, which has the effect of making the days feel longer because you are full of good emotions and at peace. 
 
-	>The second implication of wanting to do more is to increase my likelihood of experiencing as much as possible. I do believe to a certain extent good fortune (as in luck) has a lot to do with how much you progress in a career, but luck is where hard work meets opportunity. I.e. preparation meets a need. The more prepared I am, the more likely it is that i’ll stumble upon a need that I can meet, so i am creating my own luck. Therefore, increasing my odds of success. 
+The second implication of wanting to do more is to increase my likelihood of experiencing as much as possible. I do believe to a certain extent good fortune (as in luck) has a lot to do with how much you progress in a career, but luck is where hard work meets opportunity. I.e. preparation meets a need. The more prepared I am, the more likely it is that i’ll stumble upon a need that I can meet, so i am creating my own luck. Therefore, increasing my odds of success. 
 
 ---
 
