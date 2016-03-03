@@ -3,7 +3,6 @@ layout: post
 title: Why I want to do more
 ---
 
-#1 Why I want to do more
 
 Hey, I’m Kiley. This is my introductory post. It kinda describes in a nutshell what I’m perseverating on at the moment. It isn’t  a numbered list and doesn’t consist of any internet research (yet). But, if that type of thing interests you, then continue.
 
