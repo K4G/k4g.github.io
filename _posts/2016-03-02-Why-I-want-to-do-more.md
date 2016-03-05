@@ -4,11 +4,11 @@ title: Why I want to do more
 ---
 
 
-Hey, I’m Kiley. This is my introductory post. It kinda describes in a nutshell what I’m perseverating on at the moment. It isn’t  a numbered list and doesn’t consist of any internet research (yet). But, if that type of thing interests you, then continue.
+Hey, I’m Kiley. This is my introductory post. It kinda describes in a nutshell what I am perseverating on at the moment. It isn’t  a numbered list and doesn’t consist of any internet research (yet). But, if that type of thing interests you, then continue.
 
 I’ll start by saying i’m very analytical in a very non scientific way. I’m a numbers person, have a Masters in Finance and have worked with spreadsheets for years. I’ve turned this into an advantage for me because I can track and measure every experiment in my life. Which, by the way, everything I do is an experiment and this blog will feature many of them. 
 
-By experimenting and measuring, I am allowing myself to do more by only continuing with the things that gives me the best results. The reason for wanting to do more spans a lot of my life. From things/experiences  I want to give my family to the example I want to set for my daughter to the inspiration I want to be for those I come into contact with. I love meeting people who are not only driven, but mindful and efficient in their work. 
+By experimenting and measuring, I am allowing myself to do more by only continuing with the things that give me the best results. The reason for wanting to do more spans a lot of my life. From things/experiences  I want to give my family to the example I want to set for my daughter to the inspiration I want to be for those I come into contact with. I love meeting people who are not only driven, but mindful and efficient in their work. 
 
 ---
 
