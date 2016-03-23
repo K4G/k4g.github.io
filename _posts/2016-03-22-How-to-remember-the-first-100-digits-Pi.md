@@ -1,9 +1,8 @@
 ---
 layout: post
-title: How to memorize the first 100 digits of Pi
+title: How to memorize the 1st 100 digits of Pi
 ---
 
-#How to memorize the first 100 digits of Pi 
 
 Turtle Pan Jelly Male Foe Upkeep Man My Fridge No Jar Mom Famine Couples Enough Fort Pocket JPM PoBoy Make Lots Laugh Noahs Pecker Bearer Leap No Mask Ivy Tijers Joan of Joans FOB bee Fasho Noah Ivys Mayor Ivy No Law Mourn Tot Cow Shoes Cow Poo
 
