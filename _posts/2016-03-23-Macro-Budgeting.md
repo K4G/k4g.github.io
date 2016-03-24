@@ -14,4 +14,4 @@ I get the value of all of my savings and investment accounts daily, add them to 
 
 I have a template (google sheet > [Link](https://docs.google.com/spreadsheets/d/1Gp37F4hHZamP1SthWufM2dIMPkSaHZJVsf1Pu12ZdDI/edit?usp=sharing) < try it out below) of exactly what I use. Try it out. You’ll find yourself wanting to do it everyday to see how your personal wealth is growing. The greatest times are when bonuses, tax returns or other windfalls come through and you see a spike in the chart. I immediately move that money to investment accounts so I don’t have the urge to spend it unnecessarily. I know that seeing my net worth grow is much more satisfying than fulfilling a temporary desire. 
 
-<iframe width="400" height="200" src="https://docs.google.com/spreadsheets/d/1Gp37F4hHZamP1SthWufM2dIMPkSaHZJVsf1Pu12ZdDI/pubhtml?widget=true&amp;headers=false"></iframe>
+<iframe width="60%" height="20%" src="https://docs.google.com/spreadsheets/d/1Gp37F4hHZamP1SthWufM2dIMPkSaHZJVsf1Pu12ZdDI/pubhtml?widget=true&amp;headers=false"></iframe>
