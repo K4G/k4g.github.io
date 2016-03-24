@@ -8,7 +8,7 @@ Granted, this method is really designed for someone getting a paycheck at known 
 
 Also, I have a built in emergency fund right there in my checking account. $2,000 worth. 
 
-I think transactional budgeting is too much micro-managing and frankly I don’t want to dedicate the time, or mental energy to scrutinizing every dollar that leaves my wallet. So, I just track total net worth with a chart. If it is generally trending up, then i’m doing a good job. ‘
+I think transactional budgeting is too much micro-managing and frankly I don’t want to dedicate the time or mental energy to scrutinizing every dollar that leaves my wallet. So, I just track total net worth with a chart. If it is generally trending up, then i’m doing a good job. 
 
 I get the value of all of my savings and investment accounts daily, add them to a row in a spreadsheet and track the total. Of course in doing this you have to net out your liabilities (credit card or other short term debts) to see what the total liquid net worth is. Seeing this macro picture has allowed me to set a more clear vision for my finances and is super low stress and fun to do. 
 
